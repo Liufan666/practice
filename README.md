@@ -1,2 +1,2 @@
 # practice
-作为一个联系
+I am a student
